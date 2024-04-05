@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cptArti
+- 🌱 I’m currently learning too many things
+- 📫 How to reach me artem.bekdzhigitov@gmail.com
+- ⚡ Fun fact: I'm musician
